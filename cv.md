@@ -1,4 +1,6 @@
 # Palina Apanovich
 
 ### Contact
-> +48600673513 palina_apanovich@mail.ru discord @muha#4968
+1. +48600673513
+2. palina.apanovich@gmail.com
+3. @muha4968
