@@ -13,3 +13,12 @@
 3. Jagiellonian University National Security, MA 2021-2023
 
 4. Jagiellonian University Arabic Language and Literature, MA 2022-2024
+
+### Languages
+* Belarusian - native
+* Russian - native
+* Polish - C2
+* English - C2
+* Arabic - B2
+* Italian - A2
+* Hebrew - A2
